@@ -1,1 +1,1 @@
-Uma vida nova e feiiz aos animaizinhos de resgatados
+Uma vida nova e feliz aos animaizinhos de resgatados
